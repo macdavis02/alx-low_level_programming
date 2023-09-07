@@ -1,0 +1,16 @@
+Tread lightly, she is near
+Under the snow,
+Speak gently, she can hear
+The daisies grow.
+
+All her bright golden hair
+Tarnished with rust,
+She that was young and fair
+Fallen to dust.
+
+Lily-like, white as snow,
+She hardly knew
+She was a woman, so
+Sweetly she grew.
+
+Coffin-board, heavy ston
